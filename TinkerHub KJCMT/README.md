@@ -12,3 +12,12 @@ We here Learn, Work, Facilitate & Prosper together as a whole. Thus, the organiz
 | Arjun Krishna | Tech Lead | ArjunKrishna#9445 |
 | Nikhil T Das | Creative Lead | Nikhil Das#5843 |
 | Indhuchoodan R | Outreach Lead | Indhuchoodan R#1694 |
+
+## Active Members
+
+| Name | Discord ID |
+| --- | --- |
+| Jeevan Joseph | Jeevan Joseph#9466 |
+| Joseph Mathai | Joseph Mathai#2299 |
+| Sreelakshmi Anilkumar | Sreelakshmi Anilkumar#4366 |
+| Sandra Krishnan | Sandra Krishnan#0408 |
