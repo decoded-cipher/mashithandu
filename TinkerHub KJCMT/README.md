@@ -22,3 +22,8 @@ We here Learn, Work, Facilitate & Prosper together as a whole. Thus, the organiz
 | Sreelakshmi Anilkumar | Sreelakshmi Anilkumar#4366 |
 | Sandra Krishnan | Sandra Krishnan#0408 |
 | Meretta Suresh | Meretta Suresh#3517 |
+| Christeena Zachariah | Christeena Zacharia#9144 |
+| Aravinth S Kumar | Aravinth S Kumar#5192 |
+| Ashima Shajahan | Ashima Shajahan#5859 |
+| Joyel Johny | Joyel Johny#7495 |
+| Sona Josh | Sona Josh#9621 |
